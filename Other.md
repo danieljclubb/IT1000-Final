@@ -2,7 +2,7 @@
 
 In addition to coding and music, I'm a reluctant actor. My best friend is a Digital Storytelling major, and I've been lucky enough to help him write some pretty solid short films. Unfortunately that meant I ahd to act in them too. *Please* don't watch these.
 
-[Intergalactic Fueling Stations}(https://www.youtube.com/watch?v=MYFTt_3_2WY)
+[Intergalactic Fueling Stations](https://www.youtube.com/watch?v=MYFTt_3_2WY)
 
 [Brothers in Law](https://www.youtube.com/watch?v=BYVCB6ocN4c)
 
