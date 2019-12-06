@@ -8,7 +8,7 @@ In addition to coding and music, I'm a reluctant actor. My best friend is a Digi
 
 [The Good Boy](https://www.youtube.com/watch?v=Xvqu32rdFdQ)
 
-[Road Redemption](https://www.youtube.com/watch?v=3s3qSr79NeQ&t=2s) (In addition to doing most of the voices I also did the soundtrack and audio engineering for this one)
+[Road Redemption](https://www.youtube.com/watch?v=3s3qSr79NeQ&t=2s) (In addition to doing some voices I also did the soundtrack and audio engineering for this one)
 
 [Leverage](https://www.youtube.com/watch?v=_r91va-ClVk&t=183s)
 
