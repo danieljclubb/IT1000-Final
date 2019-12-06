@@ -15,4 +15,6 @@
  - This is my favorite animal:
  ![Kangaroo](https://media.australianmuseum.net.au/media/dd/images/red_kangaroo.d517513.width-800.9745cef.jpg)
 
+
+---
 [HOME](https://github.com/danieljclubb/IT1000-Final/blob/master/README.md)
