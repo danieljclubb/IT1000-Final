@@ -1,4 +1,4 @@
-l# Welcome to Daniel's IT 1000 Final Project
+# Welcome to Daniel's IT 1000 Final Project
 ## HOME
 
 * [About Me]
