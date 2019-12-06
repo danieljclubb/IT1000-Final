@@ -44,4 +44,6 @@ private void playSquare(float freq)
         }
 ```
 
+
+---
 [HOME](https://github.com/danieljclubb/IT1000-Final/blob/master/README.md)
