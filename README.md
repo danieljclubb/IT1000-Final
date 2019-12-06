@@ -5,7 +5,7 @@ If you'd like to know some factoids about me or see some stuff I've made, check 
 
 * [About Me](https://github.com/danieljclubb/IT1000-Final/blob/master/AboutMe.md)
 * [Code](https://github.com/danieljclubb/IT1000-Final/blob/master/Code.md)
-* [Music]
+* [Music](https://github.com/danieljclubb/IT1000-Final/blob/master/Music.md)
 * [Other]
 
 
